@@ -7,3 +7,6 @@ https://docs.google.com/document/d/1dhhISfFvZHPger_voQ42glwJLEyJU7P0wP4Ya1Hltnw/
 Word:
 https://1drv.ms/w/s!Ajcy1hol1iKah3Qh1NrwQ7KbuYGT
 
+Rapport
+IN2000_Rapport_Gruppe9.pdf
+
